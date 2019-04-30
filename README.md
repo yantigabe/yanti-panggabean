@@ -1,0 +1,2 @@
+# yanti-panggabean
+konsep manajemen
